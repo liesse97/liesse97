@@ -10,4 +10,4 @@
 - 📫 Hur man når mig: ... [Email](mailto:ishimmwelieish@gmail.com)
 - 😄 Pronomen: ...Hon/Henne
 - ⚡ Fun fact: ... tränar Thai boxning
--->
+
