@@ -3,7 +3,7 @@
 
 
 
-- 🔭 Jag sör för närvarande ... LIA 
+- 🔭 Jag söker för närvarande ... LIA 
 - 🌱 Jag lär mig just nu ... React/Wordpress
 - 🤔 Jag letar efter hjälp med ...
 - 💬 Fråga mig om ... vad som helst
